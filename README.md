@@ -1,6 +1,6 @@
 # Hi, I'm Karthikeyan 👋
 
-🎓 Computer Science Student
+🎓 Cyber Security Student
 
 ## About Me
 
