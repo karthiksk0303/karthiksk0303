@@ -26,4 +26,4 @@
 
 ## Connect
 
-📧 Your Email
+📧 karthiksk0303@gmail.com
